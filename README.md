@@ -1,2 +1,3 @@
 # professional-statment
 Professional Statement
+As a current NBCUniversal employee that specializes in broadcast operations, I intended to use my technical skills gained over the last 5 years into cybersecurity. I deeply value integrity, transparency and teachability. I believe its important to understand the expectations of the position assigned to me. I’ve learned over time that my biggest strengths are adaptability, persistence and comradery. I am a self-starter and big believer in supporting my team to the fullest extent. In becoming a cybersecurity analyst I will cultivate the success and protection of any organization that will have me.
